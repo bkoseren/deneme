@@ -1,0 +1,1 @@
+bertan köseren
